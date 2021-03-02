@@ -1,0 +1,2 @@
+# TUGAS-2-GRAFKOM
+Ade Neviyani/018/D4 MI 19A
